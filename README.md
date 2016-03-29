@@ -43,6 +43,7 @@ HAVE TO WATCH:
 - You're Next (Final legal, bastante sangue)
 - Dead Silence (Final legal, meio enrolado)
 - The Strangers (Pra quem gosta de Tensão, esse é TENSO)
+- 1408 (História de um quarto de Hotel Mal Assombrado. Final LOCO)
 
 ===== PRÓXIMOS DA LISTA: PARA ASSISTIR
 - Eden Lake
