@@ -40,14 +40,14 @@ HAVE TO WATCH:
 - Silent House (legal + atris GATA)
 - Evil Dead (tenso)
 - Lemon Tree Passage (baseado numa lenda real, tem até video no youtube)
-
+- You're Next (Final legal, bastante sangue)
+- Dead Silence (Final legal, meio enrolado)
+- The Strangers (Pra quem gosta de Tensão, esse é TENSO)
 
 ===== PRÓXIMOS DA LISTA: PARA ASSISTIR
 - Eden Lake
-- The Strangers
 - The Devil Rejects
 - Misery
-- Dead Silence
 - Black Cadillac
 - Black Water
 - From Beneath
